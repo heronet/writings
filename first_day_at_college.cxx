@@ -6,6 +6,8 @@ Well it's not very interesting for me to begin with. Why? Because my first day a
 
 With that somehow sad and boring story aside, I am very much interested about what will be MY first day at my college. I am excited to meet my friends and I know many of you are too. You maight ask "Well how do you have friends if you didn't even go to your college?" and that would be a valid question. Despite our college physically being shut, we continued our studies through online classes, spmething we discussed earlier. That is how I made my virual friends. or internet friends as some might say. 
 
+But we dont need to associate virtual to bad. They want to see me as well. They invited me for a treet after I won the sciende fair representing my class. And I've made a deal with my principal who also happens to be a colonel.
+
 "My suggestion on your first day"
 
 Make new friends
